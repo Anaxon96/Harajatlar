@@ -1,0 +1,2 @@
+# Harajatlar
+Yillik harajatlar
